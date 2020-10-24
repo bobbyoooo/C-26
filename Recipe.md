@@ -1,0 +1,6 @@
+You could bake the cakes one day in advance as well. Let them cool completely, then wrap them tightly in plastic foil to prevent them from drying out.
+To make the cake start by preheating the oven to 180 degrees Celsius/ 350 degrees Fahrenheit. Butter and flour 2 springforms or cake pans of 20 cm/8-inch diameter. Brew one cup of strong coffee.
+In a large bowl mix and sift the flour, sugar, cocoa powder, baking soda, baking powder, and salt.
+Combine the buttermilk, oil, eggs, and vanilla extract preferably in a jug or in another bowl. Pour this mixture, slowly, over the dry ingredients whisking with an electric mixer at very low speed.
+Add the hot coffee and stir with a spatula very shortly until the ingredients are just combined. Make sure to scrape the bottom of the bowl as well in the process. Divide the mixture into two equal parts (I use the scale to make sure I divide the mixture evenly) and pour it into the two prepared forms.
+Bake for about 40-45 minutes until a toothpick inserted in the middle of the cake comes out rather clean, it can still be a bit wet, but it should not be covered in chocolate. Let cool in the pan for a while, then transfer the cakes to wire racks and let cool completely.
